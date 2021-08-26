@@ -1,1 +1,1 @@
-This is my personal portfoilio in making.
+This is my personal portfolio in making.
